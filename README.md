@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Abbiyham
+- 👀 I’m interested in Ui design, software development
+- 🌱 I’m a professional Graphic Desiner
+- 💞️ I’m looking to collaborate on with anyone intrested to collaborate with me
+- 📫 How to reach me abbiybenson@gmail.com or my Whats app +260 975407400
